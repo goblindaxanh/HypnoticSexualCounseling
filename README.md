@@ -1,2 +1,0 @@
-# HypnoticSexualCounseling
-Hypnotic Sexual Counseling
